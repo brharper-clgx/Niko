@@ -80,7 +80,7 @@ The two guard captains left to secure the hidden entrances after I explained the
 
 "Some of then..." I choked back tears.
 
-The room seemed to grow cold. Luther look like a snake coiled to strike me. After a long pause, he spoke to me in in a slow, careful whisper,
+The room seemed to grow cold. Luther look like a snake coiled to strike me. After a long pause, he spoke to me in a slow, careful whisper,
 
 "You're mother is dead. Add her to the tally of people you've killed tonight." 
 
