@@ -40,33 +40,33 @@ As we grew older and more world wise tension began to rise between Luther and ou
 
 When we were younger, I would concoct schemes for my brother and I to perform. We would swipe pastries from the kitchen or sneak out of the castle to watch the mummer's show. Little things that would give my brother a laugh and me a thrill. Generally these plans involved my brother sweet talking some poor cook or butler while I did the dirty work of snagging keys or hot pans.  
 
-As Luther's rule grew, in my view, more tyrannical, my schemes began to take on a more serious nature. If Luther taxed the mead, then I would smuggle it. If he overtaxed the fiefdoms then I would arrange for the tax collectors to meet a dozen swords on the road. Any opportunity to undermine Luther I secretly kindled. At one point my operations became quite extravagant and I was  breaking bread with thieves and criminals like they were old friends. Robert, for his part, was willing to overlook my subversions. But as age seventeen drew nearer and his responsibilities increased, he was unwilling to partake. 
+As Luther's rule grew, in my view, more tyrannical, my schemes began to take on a more serious nature. If Luther regulated mead, then I would smuggle it. If he overtaxed the fiefdoms then I would arrange for the Collectors to meet a dozen swords on the road. Any opportunity to undermine Luther I fostered in secret. At one point my operations became quite extravagant and I was  breaking bread with thieves and criminals like they were old friends. Robert, for his part, was willing to overlook my subversions, so long as they were directed toward the greater good. But as age seventeen drew nearer and his responsibilities increased he was unwilling to aid me and felt uncomfortable with the breadth of my activities. 
 
-The war came when the Northern fiefdoms rebelled. Supplies and men were sent to the frontlines and on Robert's seventeenth birthday he went with them. Back home we waited anxiously for news, as food rations and lamp oil grew scarce. As young men were killed more were sent North, and soon the small city surrounding the castle consisted mostly of women, children, the elderly, and those who found ways to escape the law.
+The war came when the Northern fiefdoms rebelled. Supplies and men were sent to the front lines and on Robert's seventeenth birthday he went with them. Back home we waited anxiously for news, as food rations and lamp oil grew scarce. As young men were killed more were sent North, and soon the small city surrounding the castle consisted mostly of women, children, the elderly, and those who found ways to escape the law.
 
 I grew restless in Robert's absence. I immersed myself in activity that I'm not proud of. Brothels, gambling, criminal schemes that had no noble sanction. I was frustrated with Luther and my mother, frustrated that I could not join my brother till I came of age, frustrated as my friends and neighbors died at the hands of a distant enemy. And I dealt with it all by drinking and stealing and brawling with anyone who looked at me the wrong way. Healthy and mature... I know.
 
 ### Hamartia
-By the time I was of an age to join the war, some two and a half years after it started, the conflict was drawing to an end. Our side would be victorious. In typical Robert fashion, my brother came home a decorated war hero, with stories of cunning and valor on the lips of commoners that I do not doubt are true. 
+By the time I was of an age to join the war, some two and a half years after it had started, the conflict was drawing to an end. Our side would be victorious. In typical Robert fashion, my brother came home a decorated war hero, with stories of cunning and valor on the lips of commoners that I do not doubt are true. 
 
-I remember looking at Robert, after his return, and being taken by how much he had changed. The person before me was fully a man. He looked every bit the Lord and war hero that he was. And I too had changed, though in different ways. I think we both could sense it, the difference, the broad expanse of experience and outlook hung between us. But we did our best to ignore it and continued almost as though nothing had changed.
+I remember looking at Robert, after his return, and being taken by how much he had changed. The person before me was fully a man. He looked every bit the Lord and war hero that he was. And I too had changed, though in different ways. I think we both could sense it, the difference, the broad expanse of experience and outlook which hung between us. But we did our best to ignore it and continued almost as though nothing had changed.
 
 I have made many mistakes in my life. But one eclipses the rest. In my criminal misdeeds throughout the war I would occasionally sneak my accomplishes into the castle for food and drink after a successful heist or ploy. Somehow, it simply never occurred to me the risk I put my family in revealing hidden entrances to the castle. To my horror, this knowledge would be put to use.
 
 Though we were victorious in the war, political unrest continued to eat away at the realm. Domestically, a group known as the Grey Night began orchestrating demonstrations in the streets. They strung effigies of Robert and Luther from trees and would beat or burn them. They clashed with the city watch and nighttime riots became a frequent occurrence. Months prior, with the return of Robert, I had withdrawn my contact with the underground. Now I looked on helplessly as the turmoil unfolded. 
 
-In the dead of night two days before Midwinter the castle was infiltrated. I awoke from one nightmare into another. There were cries from the hall and the clash of metal. I sprung into the hallway, barley clothed, with nothing but a letter opener to arm me. I heard Robert emerge from his bedroom on my right just as a cloaked figure appeared in the hallway before us. The figure raised a crossbow and I didn't have  time to think before Robert pushed me aside. I heard the soft *woosh* of a crossbow bolt, a hollow *thud*, and Robert fell. I saw red. I rushed the figure as he attempted to reload. To late for him. Using the man's own dagger and the letter opener I had clenched in my hand I stabbed into his throat, his face and eyes, his chest. I beat at him until blood pooled all around him on the floor. Regaining my senses somewhat I went to Robert's side. The bolt had gone through his heart. His face stared blankly at the ceiling. He was gone.
+In the dead of night, two days before Midwinter, the castle was infiltrated. I awoke from one nightmare into another. There were cries from the hall and the clash of metal. I sprung into the hallway, barley clothed, with nothing but a letter opener to arm me. I heard Robert emerge from his bedroom on my right just as a cloaked figure appeared in the hallway before us. The figure raised a crossbow and I didn't have  time to think before Robert had pushed me away. I heard the soft *woosh* of a crossbow bolt, a hollow *thud*, and Robert fell. I saw red. I rushed the figure as he attempted to reload. To late for him. Using the man's own dagger and the letter opener I had clenched in my hand I stabbed into his throat, his face and eyes, his chest. I beat at him until blood was pooled all around us. Regaining some of my senses, I went to Robert's side. The bolt had gone through his heart. His face stared blankly at the ceiling. He was gone.
 
-The guards eventually regained conrol of the castle and killed or captured the intruders. Nine in total, each carrying the symbol of the Grey Night and armed in a manner that spoke of an intent to murder rather than rob. I recognized some of the bodies. Men I had shared laughter and drinks with. This was my doing. 
+The guards eventually regained control of the castle and killed or captured the intruders. Nine in total, each carrying the symbol of the Grey Night and armed in a manner that spoke of an intent to murder rather than rob. I recognized some of them. Men I had shared laughter and drinks with. This was my doing. 
 
 ### Exile
-Assured that the danger was at a pause, I rushed of to Lord Advisor's chambers. He was surrounded by two guard captains and another bald, robed man who I did not recognize. 
+Assured that the danger was at a pause, I rushed to Lord Advisor's chambers. He was surrounded by two guard captains and another bald, robed man who I did not recognize. 
 
-"I know where they gained entry to the castle, you need to post guards there immediately", I said horsely.
+"I know where they gained entry to the castle, you need to post guards there immediately!", I gasped.
 
 "Tell me." said Luther.
 
-The two guard captains left to secure the hidden entrances after I explained their location. A few moments of silence passed before Luther signaled for the third man to leave as well. Luther stared at me, brow furrowed.
+The two guard captains left to secure the hidden entrances after I explained their location. A few moments of silence passed before Luther signaled for the third man to leave as well. Luther stared at me, his brow furrowed.
 
 "How did you know of this?" Luther said softly, eyes fixed on me.
 
@@ -92,7 +92,7 @@ I was lost for words.
 
 Luther continued,
 
-"There is little I can do for you. Legally, matters involving deeds of the nobility are dealt with by the high court and I can only give them council..." 
+"There is little I can do for you. Legally, matters involving the deeds of the nobility are dealt with by the high court and I can only give them council..." 
 
 A long pause. 
 
@@ -103,4 +103,4 @@ A long pause.
 And I did.
 
 ### Wanderer
-I did not leave out of fear of execution or imprisonment, not entirely. No, what was worse for me was the thought of *becoming* Lord of Aramoor. What a joke for me to stand where my brother stood, his blood on my hands. I am not half the man my brother or father were. I am neither worthy nor willing to fill those shoes. And so when I left Harindel and then Aramoor, I did not look back. I moved from town to town until my purse grew lean. I worked where I could and stole when it was necessary. Years have passed in the manner, moving farther and farther from my home. And now I am here.
+I did not leave out of fear of execution or imprisonment, not entirely. No, what was worse for me was the thought of *becoming* Lord of Aramoor. What a joke for me to stand where my brother stood, his blood on my hands. I am not half the man my brother or father were. I am neither worthy nor willing to fill those shoes. And so when I left Harindel and then Aramoor, I did not look back. I moved from town to town until my purse grew lean. I worked where I could and stole when it was necessary. Years have passed in the manner, moving farther and farther from Harindel. And now I am here.
