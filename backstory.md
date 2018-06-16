@@ -49,7 +49,7 @@ I grew restless in Robert's absence. I immersed myself in activity that I'm not 
 ### Hamartia
 By the time I was of an age to join the war, some two and a half years after it had started, the conflict was drawing to an end. Our side would be victorious. In typical Robert fashion, my brother came home a decorated war hero, with stories of cunning and valor on the lips of commoners that I do not doubt are true. 
 
-I remember looking at Robert after his return and being taken by how much he had changed. The person before me was fully a man. He looked every bit the Lord and war hero that he was. And I too had changed, though in different ways. I think we both could sense it, the difference, the broad expanse of experience and outlook which hung between us. But we did our best to ignore it and continued almost as though out boyhood had gone uninterrupted.
+I remember looking at Robert after his return and being taken by how much he had changed. The person before me was fully a man. He looked every bit the Lord and war hero that he was. And I too had changed, though in different ways. I think we both could sense it, the difference, the broad expanse of experience and outlook which hung between us. But we did our best to ignore it and continued almost as though our boyhood had gone uninterrupted.
 
 I have made many mistakes in my life. But one eclipses the rest. In my criminal misdeeds throughout the war I would occasionally sneak my accomplishes into the castle for food and drink after a successful heist or ploy. Somehow, it simply never occurred to me the risk I put my family in revealing hidden entrances to the castle. To my horror, this knowledge would be put to use.
 
