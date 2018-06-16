@@ -1,6 +1,6 @@
-# Niko Whiteridge
+# Niko Whitteridge
 ## Table of Contents
-- [Niko Whiteridge](#niko-whiteridge)
+- [Niko Whitteridge](#niko-Whitteridge)
     - [Table of Contents](#table-of-contents)
     - [Backstory](#backstory)
         - [Provenience](#provenience)
@@ -13,7 +13,7 @@
 
 ## Backstory
 ### Provenience
-My parents were Lord and Lady Whiteridge of Aramoor. My boyhood home was Harindel Castle, the seat of power in Aramoor, a spartan fortress with a war-torn history of some eight hundreds years. My brother Robert, three years my elder, was first-in-line to the throne. Before marrying my father, my mother Catherine was heiress to Cormyr, our neighbor to the South. I tell you all of this not to boast of my noble heritage. In truth my heritage is something I'd sooner you knew nothing about. However these facts are important to the story I'm about to tell you.
+My parents were Lord and Lady Whitteridge of Aramoor. My boyhood home was Harindel Castle, the seat of power in Aramoor, a spartan fortress with a war-torn history of some eight hundreds years. My brother Robert, three years my elder, was first-in-line to the throne. Before marrying my father, my mother Catherine was heiress to Cormyr, our neighbor to the South. I tell you all of this not to boast of my noble heritage. In truth my heritage is something I'd sooner you knew nothing about. However these facts are important to the story I'm about to tell you.
 
 Though it is true we were born with silver spoons in our mouths, I like to think that my parents did a fair job at keeping my brother and I humble. Each night a castle hand's family would sup with us. My father and mother would  listen intently to their stories, aspirations, and woes. And every few tendays my father would lend my brother and I out to the stable-master, blacksmith, or whoever was in need. We would clean stables and linens, work bellows and plow fields. Nevertheless, my brother and I returned to hearth warmed bedrooms and rested our heads on feathered pillows while the blacksmith's son returned to a small flea filled cot on a cold dirt floor.
 
