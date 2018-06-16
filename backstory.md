@@ -19,7 +19,7 @@ Though it is true we were born with silver spoons in our mouths, I like to think
 
 My mother, was warm and gentle. She was a daydreamer and an absent-minded hummer. In the summer she would work in the garden. In winter she sat by the fire and read. During my youth I remember her as happy and carefree. But as I grew older she grew  anxious and frail. Still, I miss her dearly.
 
-My father James, was a practical man. He was generally serious, though his eyes would glisten impishly when he told a joke. He taught us to ride and shoot. Daily occurrences, no matter how trivial, somehow always contained a life lesson for him to impart. I miss him dearly as well.
+My father James, was a practical man. He was generally serious, though his eyes would glisten impishly when he told a joke. He taught us to ride and shoot. Daily occurrences, no matter how trivial, somehow always contained a life lesson for him to impart. I miss him dearly also.
 
 ### Ouroboros
 My father's duties as Lord Aramoor frequently required that he traveled. "Diplomacy is best done face to face", my father would say. In his stead, Grand Advisor Luther Proditione oversaw the day to day affairs (my mother had no interested in governance). Luther was tall, pale, black haired, and possessed a large beak of a nose. He generally donned billowing black robes, leading Rob to joke that Luther was a crow stuck in a man's body. Even his voice seemed to *caw* a little when he was upset.
@@ -60,7 +60,7 @@ In the dead of night, two days before Midwinter, the castle was infiltrated. I a
 The guards eventually regained control of the castle and killed or captured the intruders. Nine in total, each carrying the symbol of the Red Dawn and armed in a manner that spoke of an intent to murder rather than rob. I recognized some of them. Men I had shared laughter and drinks with. This was my doing. 
 
 ### Exile
-Young Henrietta, only seven, was rushed to the phÿsik for minor wounds to her arms and legs from protector herself from an assailant. Assured that the danger was at a pause, I rushed to Lord Advisor's chambers. He was surrounded by two guard captains and another bald, robed man who I did not recognize. 
+Young Henrietta, only seven, was rushed to the phÿsik for minor wounds to her arms and legs from fighting off an assailant. Assured that the danger was at a pause, I rushed to Lord Advisor's chambers. He was surrounded by two guard captains and another bald, robed man who I did not recognize. 
 
 "I know where they gained entry to the castle, you need to post guards there immediately!", I gasped.
 
