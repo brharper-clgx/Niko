@@ -1,4 +1,4 @@
-# Niko Whitteridge
+# Nikolas Whitteridge
 ## Table of Contents
 - [Niko Whitteridge](#niko-Whitteridge)
     - [Table of Contents](#table-of-contents)
