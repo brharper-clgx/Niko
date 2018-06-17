@@ -1,7 +1,7 @@
 ## The Coin
 The story of how I came across my magical coin is an amusing one. I discovered it after winning at a game of cards while waiting for a ship in the port at Nilrennas. It was a low stakes game. My opponent, a man who'd set up a wobbly little table and stools on the street corner, was ragged and had little to his name. And I must admit I wasn't exactly flush either. 
 
-I walked away after winning a few hands. One gold piece, two silver, a dozen or so copper, and a marble where my prize. Not amazing, but it would feed me for a while. Only, not a hundred paces away and I realized the gold coin was missing...
+I walked away after winning a few hands. One gold piece, two silver, a dozen or so copper, and a marble were my prize. Not amazing, but it would feed me for a while. Only, not a hundred paces away and I realized the gold coin was missing...
 
 Now, most people would probably assume that they had been the victim of a pickpocket. A reasonable assumption. But having skill at pickpocketing myself I'm damn good at keeping an eye on my purse. Either I was in the midst of a thief savant or something even more interesting was afoot. 
 
