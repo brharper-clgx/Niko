@@ -105,4 +105,4 @@ And I did.
 ### Wanderer
 I did not leave out of fear of execution or imprisonment, not entirely. No, what was worse for me was the thought of *becoming* Lord of Aramoor. What a joke for me to stand where my brother stood, his blood on my hands. I am not half the man my brother or father were. I am neither worthy nor willing to fill those shoes. Luther was right about me. I did not have what it took to govern. In my arrogance and naive idealism I had only reaped calamity.
 
-And so when I left Harindel and then Aramoor, I did not look back. I moved from town to town until my purse grew lean. I worked where I could and stole when it was necessary. Years have passed in the manner, moving farther and farther from Harindel. And now I am here.
+And so when I left Harindel and then Aramoor, I did not look back. I moved from town to town until my purse grew lean. I worked where I could and stole when it was necessary. Years have passed in this manner, moving farther and farther from Aramoor. And now I am here.
