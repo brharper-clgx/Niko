@@ -1,13 +1,13 @@
 ## The Coin
-The story of how I came across my coin is an amusing one. I discovered it after winning at a game of cards while waiting for a ship in the port at Nilrennas. It was a low-stakes game. My opponent, a man who'd set up a wobbly little table and stools on the street corner, was ragged and had little to his name. And I must admit I wasn't exactly flush either. 
+The story of how I came across my coin is an amusing one. I discovered it after winning at a game of cards while waiting for a ship in the port at Nilrennas. It was a low-stakes game. My opponent, a man who'd set up a wobbly little table and stools on the street corner was ragged and had little to his name. And I must admit I wasn't exactly flush either. 
 
-I walked away after winning a few hands. One gold piece, two silver, a dozen or so copper, and a marble were my prize. Not amazing, but it would feed me for a while. Except, not a hundred paces away and I realized the gold coin was missing....
+I walked away after winning a few hands. One gold piece, two silver, a dozen or so copper, and a marble were my prize. Not much, but it would feed me for a while. Except, not a hundred paces away and I realized the gold coin was missing....
 
 Now, most people would probably assume that they had been the victim of a pickpocket. A reasonable assumption. But being skilled at pickpocketing myself I'm damn good at keeping an eye on my purse. Either I was in the midst of a thief savant or something even more interesting was afoot. 
 
-The next day I returned to play the man at cards again. I was surprised to find that he'd found the funds to continue playing after I'd cleaned him out. I told him, laughing,that I'd gotten drunk the night before and lost the gold coin I'd won previously. I was determined, I told him, to get my winnings back! A barely noticeable smile crossed his face, for just an instant.
+The next day I returned to play the man at cards again. I was surprised to find that he'd found the funds to continue playing after I'd cleaned him out. I told him, laughing, that I'd gotten drunk the night before and lost the gold he'd given me. I was determined, I told him, to earn my winnings back! A barely noticeable smile crossed his face, for just an instant.
 
-I won again, and this time walked away with a fair bit more as I took no mercy on this man. Hoping to bait the potential thief savant, or what-have-you, I loudly boasted of my winnings. As I walked away, I kept my hand firmly wrapped around the coin in my pocket. And I'll be damned but it disappeared right out of my hand. Not pulled, not snatched up, disappeared! Into thin air.
+I won again, and this time walked away with a fair bit more as I took no mercy on the man. Hoping to bait the potential thief savant, or what-have-you, I loudly boasted of my winnings. As I walked away, I kept my hand firmly wrapped around the coin in my pocket. And I'll be damned but it disappeared right out of my hand. Not pulled, not snatched up, disappeared! Into thin air.
 
 As I walked away I showed no sign that I'd noticed.
 
