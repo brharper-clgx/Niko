@@ -13,7 +13,7 @@ As I walked away I showed no sign that I'd noticed.
 
 Here I had it figured how the card player had filled his purse again. With a golden coin that you could summon back at your command, you could simply ask any vendor for change when paying with the coin and make yourself a pretty profit. If you were smart enough to never use the ploy twice in the same area, you could bankroll yourself for life. This was a powerful little coin... and I knew that I had to have it.
 
-The question is, how do you steal a coin when the owner can simply summon it back to themselves? With half a week before my ship to the Sapphire Shore came to port, I had plenty of time to figure it out.
+The question is, how do you steal a coin when the owner can simply summon it back to themselves? With half a tenday before my ship to the Sapphire Shore came to port, I had plenty of time to figure it out.
 
 #### **Step one.** Determine the range of the item's magic.
 Nearly all magic has a limit to how far its effects can reach. A magical trinket such as this, with no source of power to draw on, surely couldn't have a range of more than a couple dozen feet, I'd figured. So, I posted outside the card player's stand and watched him carefully. The pattern was the same nearly every time. The victim of the card player's ploy would drop the coin in her purse and begin to walk away. The player would keep an eye on them and when the victim was some fifteen or so feet off, his wrist would slightly flick and a sly smile would cross his face.
