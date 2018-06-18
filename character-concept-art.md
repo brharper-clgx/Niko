@@ -1,1 +1,1 @@
-![portrait](images\Portrait2.jpg)
+![portrait](images/Portrait2.jpg)
