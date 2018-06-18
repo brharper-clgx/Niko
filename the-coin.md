@@ -7,7 +7,7 @@ Now, most people would probably assume that they had been the victim of a pickpo
 
 The next day I returned to play the man at cards again. I was surprised to find that he'd found the funds to continue playing after I'd cleaned him out. I told him, laughing, that I'd gotten drunk the night before and lost the gold he'd given me. I was determined, I told him, to earn my winnings back! A barely noticeable smile crossed his face, for just an instant.
 
-I won again, and this time walked away with a fair bit more as I took no mercy on the man. Hoping to bait the potential thief savant, or what-have-you, I loudly boasted of my winnings. As I walked away, I kept my hand firmly wrapped around the coin in my pocket. And I'll be damned but it disappeared right out of my hand. Not pulled, not snatched up, disappeared! Into thin air.
+I won again, and this time walked away with a fair bit more as I took no mercy on the man. Hoping to bait the potential thief savant, or what-have-you, I loudly boasted of my winnings. As I walked away, I kept my hand firmly wrapped around the coin in my pocket. And I'll be damned but it disappeared right out of my hand. Not pulled, not snatched up, but disappeared! Into thin air.
 
 As I walked away I showed no sign that I'd noticed.
 
