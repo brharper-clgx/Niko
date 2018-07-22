@@ -1,1 +1,0 @@
-![portrait](images/Portrait2.jpg)
