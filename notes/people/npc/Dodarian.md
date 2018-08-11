@@ -1,5 +1,5 @@
 # Dodarian the Bold
-![Dodarian](../../images/Dodarian.png)
+![Dodarian](../../../images/Dodarian.png)
 
 
 #### Place of Origin: 

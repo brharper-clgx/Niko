@@ -1,4 +1,4 @@
-![Withered Orc](../../images/WitheredOrc.png)
+![Withered Orc](../../../images/WitheredOrc.png)
 
 - Made same pact / was cursed in the same way as Tor
 - Had black great sword identical to Tors

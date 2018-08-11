@@ -1,5 +1,5 @@
 # Muriel Durimere
-![Muriel](../../images/Muriel.png)
+![Muriel](../../../images/Muriel.png)
 
 Dwarven Princess of Highhammer
 

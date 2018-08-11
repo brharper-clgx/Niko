@@ -1,4 +1,4 @@
-![Elemil](../../images/Elemil.PNG)
+![Elemil](../../../images/Elemil.PNG)
 
 #### Place of Origin: 
 Unknown, likely Melnathar

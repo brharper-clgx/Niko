@@ -1,4 +1,4 @@
-![Gerard](../../images/Gerard.png)
+![Gerard](../../../images/Gerard.png)
 
 #### Place of Origin:
 Camor, Maneas

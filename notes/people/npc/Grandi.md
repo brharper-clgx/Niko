@@ -1,3 +1,5 @@
+![Grandi](../../../images/Grandi.png)
+
 #### Place of Origin: 
 Galmoren
 #### First Encounter Location: 

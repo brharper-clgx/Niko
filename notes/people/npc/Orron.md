@@ -5,3 +5,4 @@
 * Can heal with prayer. Cleric?
 
 
+- Last person to come back from Cold Forge
