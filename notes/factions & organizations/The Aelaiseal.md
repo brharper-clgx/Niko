@@ -1,3 +1,7 @@
+![Aelaiseal](../../images/AelaisealCoin.png)
+
+# The Aelaiseal
+
 * Underground cult of mercenaries/assassins, called The Aelaiseal.
     * The Aelaiseal (The Evergreen)
     * Have an "odd" belief about elven transcendence.

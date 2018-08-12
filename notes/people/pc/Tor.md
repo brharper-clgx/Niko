@@ -1,6 +1,6 @@
 # Tor 
 
-![Hecate](../../../images/tor.png)
+![Tor](../../../images/tor.png)
 
 **Race**: Goliath <br />
 **Class**: Warlock (Hexblade) <br />
@@ -19,3 +19,10 @@
 - Tor killed Brock and the proprietor of The Cellar in Galmoren after hearing that Grandi was attacked by the Dul'GaraGurahm.
     - Orro discovers this and feels obligated to inform Captain Baylen.
     - Baylen asks the party to leave Galmoren as a result. 
+
+- The morning after the Cellar incident, Tor leaves in the night, leaving only a note:
+"Kel,
+
+I have started on a path I cannot abandon. A path I must walk alone. My shining, new armor has already begun to tarnish and rust. That's what I do. Don't rust.
+
+Tor"
