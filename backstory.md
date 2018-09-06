@@ -86,7 +86,7 @@ The room seemed to grow cold. Luther looked like a snake coiled to strike me. Af
 
 The air left of me. He continued after a few long breaths.
 
-"By law, you are now Lord of Aramoor. But by law you are also responsible for the death of the previous Lord Aramoor, Lady Aramoor, and countless others! You granted murderers and traitors access to the castle! The punishment for these crimes is death without trial." Luther was shaking with cold fury. 
+"By law, you are now Lord of Aramoor. But by law you are also responsible for the death of the previous Lord Aramoor, Lady Aramoor, and countless others! You granted murderers and traitors access to the castle! The punishment for regicide is death..." Luther was shaking with cold fury. 
 
 I was lost for words.
 
