@@ -1,9 +1,9 @@
 # Nikolas Whitteridge
 ## Table of Contents
-- [Niko Whitteridge](#niko-Whitteridge)
+- [Nikolas Whitteridge](#nikolas-whitteridge)
     - [Table of Contents](#table-of-contents)
     - [Backstory](#backstory)
-        - [Provenience](#provenience)
+        - [Provenance](#provenance)
         - [Ouroboros](#ouroboros)
         - [Brotherhood](#brotherhood)
         - [Rebellion](#rebellion)
@@ -55,7 +55,7 @@ I have made many mistakes in my life. But one eclipses the rest. In my criminal 
 
 Though we were victorious in the war, political unrest continued to eat away at the realm. Domestically, a group known as the Red Dawn began orchestrating demonstrations in the streets. They strung effigies of Robert and Luther from trees and would beat or burn them. They clashed with the city watch and nighttime riots became a frequent occurrence. Months prior, after Robert's return, I had withdrawn my contact with the underground. Now I looked on helplessly as the turmoil unfolded. 
 
-In the dead of night, two days before Midwinter, the castle was infiltrated. I awoke from one nightmare into another. There were cries from the hall and a clash of metal. I sprung into the hallway, barely clothed, with nothing but a letter opener to arm me. I heard Robert emerge from his bedroom on my right just as a cloaked figure appeared in the hallway before us. The figure raised a crossbow and I didn't have  time to think before Robert pushed me away. I heard the soft *woosh* of a crossbow bolt, a hollow *thud*. Robert fell. I saw red. I rushed the figure as he attempted to reload. Too late for him. Using the man's own dagger and the letter opener I had clenched in my hand I stabbed into his throat, his face and eyes, his chest. I beat at him until blood was pooled all around us. When I regained some sense, I went to Robert's side. The bolt had gone through his heart. His face stared blankly at the ceiling. He was gone.
+In the dead of night, two days before Midwinter, the castle was infiltrated. I awoke from one nightmare into another. There were cries from the hall and a clash of metal. I sprung into the hallway, barely clothed, with nothing but a letter opener to arm me. I heard Robert emerge from his bedroom on my right just as a cloaked figure appeared in the hallway before us. The figure raised a crossbow and I didn't have  time to think before Robert pushed me away. I heard the soft *woosh* of a crossbow bolt, a hollow *thud*. Robert fell. I saw red. I rushed the figure as he attempted to reload. Too late for him. Using the letter opener I had clenched in my hand I stabbed into his throat, his face and eyes, his chest. I beat at him until blood was pooled all around us. When I regained some sense, I went to Robert's side. The bolt had gone through his heart. His face stared blankly at the ceiling. He was gone.
 
 The guards eventually regained control of the castle and killed or captured the intruders. Nine in total, each carrying the symbol of the Red Dawn and armed in a manner that spoke of an intent to murder rather than rob. I recognized some of them. Men I had shared laughter and drinks with. This was my doing. 
 
