@@ -47,7 +47,7 @@ The war came when the Northern fiefdoms rebelled. Supplies and men were sent to 
 I grew restless in Robert's absence. I immersed myself in activity that I'm not proud of. Brothels, gambling, criminal schemes that had no noble sanction. I was frustrated with Luther and my mother, frustrated that I could not join my brother till I came of age, frustrated as my friends and neighbors died at the hands of a distant enemy. And I dealt with it all by drinking and stealing and brawling with anyone who looked at me the wrong way. Healthy and mature... I know.
 
 ### Hamartia
-By the time I was of an age to join the war, some two and a half years after it had started, the conflict was drawing to an end. Our side would be victorious. In typical Robert fashion, my brother came home a decorated war hero, with stories of cunning and valor on the lips of commoners that I do not doubt are true. 
+By the time I was of an age to join the war, roughtly a year and a half after it had started, the conflict was drawing to an end. Our side would be victorious. In typical Robert fashion, my brother came home a decorated war hero, with stories of cunning and valor on the lips of commoners that I do not doubt are true. 
 
 I remember looking at Robert after his return and being taken by how much he had changed. The person before me was fully a man. He looked every bit the Lord and war hero that he was. And I too had changed, though in different ways. I think we both could sense it, the difference, the broad expanse of experience and outlook which hung between us. But we did our best to ignore it and continued almost as though our boyhood had gone uninterrupted.
 
