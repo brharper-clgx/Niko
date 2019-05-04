@@ -60,7 +60,7 @@ In the dead of night, two days before Midwinter, the castle was infiltrated. I a
 The guards eventually regained control of the castle and killed or captured the intruders. Nine in total, each carrying the symbol of the Red Dawn and armed in a manner that spoke of an intent to murder rather than rob. I recognized every one of them. Men I had shared laughter and drinks with. Men I hand shown into the castle. This was my doing. 
 
 ### Exile
-Young Henrietta, only seven, was rushed to the phÿsik for minor wounds to her arms and legs from fighting off an assailant. Assured that the danger was at a pause, I rushed to Lord Advisor's chambers. He was surrounded by two guard captains and another bald, robed man who I did not recognize. 
+Young Henrietta, only seven, was rushed to the phÿsik for wounds to her arms and legs from fighting off an assailant. Assured that the danger was at a pause, I rushed to Lord Advisor's chambers. He was surrounded by two guard captains and another bald, robed man who I did not recognize. 
 
 "I know where they gained entry to the castle. You need to post guards there immediately!" I gasped.
 
